@@ -1,3 +1,0 @@
-# NMZ App Privacy Policy
-
-Privacy Policy...
